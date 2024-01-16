@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @oted3 
+- 👋 Hi, I’m @oted3 ......
 - 👀 I’m interested in 
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on 
